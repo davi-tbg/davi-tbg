@@ -31,5 +31,5 @@ I am an engineering student at **ISGE-BF** (Burkina Faso), passionate about brid
 
 ### 📫 Connect with me
 
-* **LinkedIn:** [My Professional Profile](TON_LIEN_LINKEDIN)
+* **LinkedIn:** [My Professional Profile](www.linkedin.com/in/david-tiendrebeogo)
 * **Email:** [Contact Me](mailto:mrdavidtbg@gmail.com)
